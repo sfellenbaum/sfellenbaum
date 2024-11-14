@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @sfellenbaum
+- 👋🏼 Hi, I’m @sfellenbaum
 - 🌱 I’m currently learning cybersecurity management!
 - 😄 Pronouns: She/Her
